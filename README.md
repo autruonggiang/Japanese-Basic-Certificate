@@ -1,1 +1,1 @@
-# Japanese-Basic-Certificate
+# Japanese Basic Certificate
