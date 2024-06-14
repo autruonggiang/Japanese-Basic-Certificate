@@ -9,4 +9,4 @@
 - Completion Certificate for Let’s Read! Learning Japanese through Science & Technology-2: https://coursera.org/share/e91ed8ce6b9c2839eacec99143ead2b2.
 
 ## Quizlet
-https://quizlet.com/AuTruongGiang2003
+https://quizlet.com/user/autruonggiang_uit
